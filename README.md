@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## JAVIER LOPEZ GONSALEZ  👋
+soy estudiante de CEACFP y bueno trato de mejorar para tener mas oportunidad de trabajo y y bueno me gusta caminar y tomar fotos soy muy fan de Linux 
 <!--
 **javierlopezgonsalez9-bit/javierlopezgonsalez9-bit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
